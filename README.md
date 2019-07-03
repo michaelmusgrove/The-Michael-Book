@@ -1,2 +1,8 @@
-# The-Michael-Book
-The ultimate in drivel.
+# Introduction
+
+I'm writing all this down for several reasons. Cecelia my daughter being the biggest. If I die tomorrow, I want her to be able to at least have a glimpse of what her father was about, good and bad. Secondly, my memory of what happened 40 years ago isn't going to get any clearer. The people who could even corroborate a lot of what I'm writing about either are dead or one day will be dead. And I've noticed a lot of the versions I'm hearing passed around aren't accurate at all. Embellished, even.
+
+I haven't lived the richest life, but I have seen things no one else has and have been down some lonely, strange paths. I've had a life of adventure, privledge as some would see it, loneliness and unfullfilled desire. What I aim to do here is not only tell the stories but hopefully put our lives as Musgroves in context. I just turned 48 years old, so I have a lot of life left in me if it's up to me and father time. I'm not even close to being done. But if I don't start writing this down sometime, now being that time, it won't get done. That avoidance of procrastination is something I hope to demonstrate and instill, for example.
+
+A lot of this is hard to explain, even with an English degree, because I either wasn't privvy to information, like when my mother was sick or there were thnigs about my parents that I've had to find out via other channels because of embarrassments and dirty laundry. Every family has it though, so I make no apologies for it. And personally I have no problem discussing it out in the open anymore. None of it, which was horrible growing up, impacts me anymore as an independent adult. I've jettisoned the negative and surrounded myself with as much positive as I can. I'd still have to describe myself as a pessimist, regrettably. It seems to happen to some men as they get older. Not all, as we'll soon find out. Some were born that way.
+
